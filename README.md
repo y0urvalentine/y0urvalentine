@@ -4,7 +4,7 @@
   <br /> 
   Male , 19yrs old <br />
   TAKEN !! 01•02•23 <br /> 
-  <img src="https://file.garden/Zlo7whFY2AfQROME/pinkcat.gif" "width="100" height="100"> <br />
+  <img src="https://file.garden/Zlo7whFY2AfQROME/pinkcat.gif" "width="80" height="80"> <br />
   ——— <br />
   Liking dark FICTION does not mean I condone it IRL !! <br />
   It's the same as saying people who play COD are violent. <br />
@@ -14,5 +14,5 @@
   Call me a hypocrite if you want but, I'm not like you. <br /> 
   ——— <br />
   <img src="https://file.garden/Zlo7whFY2AfQROME/F690491-C-27-B0-476-D-8330-949-F6-CDE1-B81.gif" "width="50" height="50"> <br />
-  <img src="https://file.garden/ZlTvQTBYblwbIgy5/1859df67e99ca81a96ac66127d9fb4a6.webp" "width="100" height="160"> <br />
+  <img src="https://file.garden/Zlo7whFY2AfQROME/bcc49c6a90e10d847f76c4840c4599ef.jpg" "width="190" height="190"> <br />
 </div>
