@@ -10,8 +10,8 @@
   It's the same as saying people who play COD are violent. <br />
   Please think logically. <br />
  — ⚰️🕊️ — <br />
-  Other proshippers DNI. <br />
-  Call me a hypocrite if you want idc, ion fw you. <br /> 
+  Proshippers DNI. <br />
+  Call me a hypocrite if you want idc, ion fw you. I like dark media BUT I don't have any dark ships so :P.<br /> 
   ——— <br />
   <img src="https://file.garden/Zlo7whFY2AfQROME/F690491-C-27-B0-476-D-8330-949-F6-CDE1-B81.gif" "width="50" height="50"> <br />
   <img src="https://file.garden/Zlo7whFY2AfQROME/bcc49c6a90e10d847f76c4840c4599ef.jpg" "width="190" height="190"> <br />
