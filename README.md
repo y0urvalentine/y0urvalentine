@@ -6,12 +6,12 @@
   TAKEN !! 01•02•23 <br /> 
   <img src="https://file.garden/Zlo7whFY2AfQROME/pinkcat.gif" "width="80" height="80"> <br />
   ——— <br />
-  Liking dark FICTION does not mean I condone it IRL !! <br />
-  It's the same as saying people who play COD are violent. <br />
+  I enjoy dead dove media/games , I do NOT condone any actions in them irl !! <br />
+  Enjoying dark fiction doesn't make you evil. <br />
   Please think logically. <br />
  — ⚰️🕊️ — <br />
-  Proshippers DNI. <br />
-  Call me a hypocrite if you want idc, ion fw you. I like dark media BUT I don't have any dark ships so :P.<br /> 
+  Proshippers DNI if you're weird ! (So most all of you) <br />
+  If you're not a freak you can INT, if you're curious about what I mean just whisper me X3 ! <br />
   ——— <br />
   <img src="https://file.garden/Zlo7whFY2AfQROME/F690491-C-27-B0-476-D-8330-949-F6-CDE1-B81.gif" "width="50" height="50"> <br />
   <img src="https://file.garden/Zlo7whFY2AfQROME/bcc49c6a90e10d847f76c4840c4599ef.jpg" "width="190" height="190"> <br />
