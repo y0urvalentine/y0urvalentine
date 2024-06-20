@@ -5,7 +5,7 @@
   <br /> 
   Male , 19yrs old <br />
   TAKEN !! 01•02•23 <br /> 
-  <img src="https://file.garden/Zlo7whFY2AfQROME/tumblr_inline_p0x8glfCRf1uzqajc_500.jpg" "width="80" height="80"> <br />
+  <img src="https://file.garden/Zlo7whFY2AfQROME/bab69adf.gif" "width="80" height="80"> <br />
   ——— <br /> 
   I enjoy dead dove media/games , I do NOT condone any actions in them irl !! <br />
   Enjoying dark fiction doesn't make you evil. <br />
