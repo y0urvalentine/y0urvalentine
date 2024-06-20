@@ -14,7 +14,7 @@
   Proshippers DNI if you're weird ! (So most all of you) <br />
   If you're not a freak you can INT, if you're curious about what I mean just whisper me X3 ! <br />
   ——— <br />
-  <img src="https://file.garden/Zlo7whFY2AfQROME/tumblr-d715103045a365d148630e81bb2cdb32-e55348e6-500.gif" "width="30" height="30"> <br />
+  <img src="https://file.garden/Zlo7whFY2AfQROME/6eabb36f.png" "width="30" height="30"> <br />
   « .. Fucking chase me, fucking break me — You're my everything, please just r-📸 me.. » <br /> <br />
   <img src="https://file.garden/Zlo7whFY2AfQROME/Untitled110_20240620030008.png" "width="190" height="190"> <br />
 </div>
