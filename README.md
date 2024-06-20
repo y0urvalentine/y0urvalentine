@@ -1,7 +1,7 @@
 <div align="center"> <br />
   <img src="https://file.garden/ZlTvQTBYblwbIgy5/ca6da52e628d480cc03b848ab9e952fb.webp" "width="190" height="190"> <br /> <br />
   « .. I'm your little doll come and play with me — dyeing all my hair, we can be in the scene.. » <br />
-  <img src="https://file.garden/Zlo7whFY2AfQROME/tumblr_c0d50c3461b1ad80f456b55aa9e2818f_fdf86dd5_400.gif" "width="20" height="20">
+  <img src="https://file.garden/Zlo7whFY2AfQROME/tumblr_161b040c9aa5a0d34839d3c8aacd4217_8931a0e4_400.png" "width="40" height="40">
   <br /> 
   Male , 19yrs old <br />
   TAKEN !! 01•02•23 <br /> 
