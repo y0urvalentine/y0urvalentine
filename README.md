@@ -1,7 +1,7 @@
 <div align="center"> <br />
   <img src="https://file.garden/Zlo7whFY2AfQROME/36764ba7e81555b390f50a5efe096246.gif" "width="190" height="190"> <br /> <br />
   « .. I'm your little doll come and play with me — dyeing all my hair, we can be in the scene.. » <br />
-  <img src="https://file.garden/Zlo7whFY2AfQROME/tumblr_161b040c9aa5a0d34839d3c8aacd4217_8931a0e4_400.png" "width="40" height="40">
+  <img src="https://file.garden/Zlo7whFY2AfQROME/701745-E8-90-FB-4-E3-D-B7-A8-5-E17-D1414-ACE.png"with="50" height="50">
   <br /> 
   Male , 19yrs old <br />
   TAKEN !! 01•02•23 <br /> 
@@ -19,7 +19,7 @@
   !! DNI !! <br />
   If you are K0d@c0n or any type or l0li / sh0t@con DNI. Being attracted to minor looking characters is weird af! <br />
   ——— <br />
-  <img src="https://file.garden/Zlo7whFY2AfQROME/6eabb36f.png" "width="30" height="30"> <br />
+  <img src="https://file.garden/Zlo7whFY2AfQROME/59bf563c.gif" "width="60" height="60"> <br />
   « .. Fucking chase me, fucking break me — You're my everything, please just r-📸 me.. » <br /> <br />
   <img src="https://file.garden/Zlo7whFY2AfQROME/Untitled110_20240620030008.png" "width="190" height="190"> <br />
 </div>
