@@ -1,6 +1,6 @@
 <div align="center"> <br />
   <img src="https://file.garden/Zlo7whFY2AfQROME/36764ba7e81555b390f50a5efe096246.gif" "width="190" height="190"> <br /> <br />
-  « .. I'm your little doll come and play with me — dyeing all my hair, we can be in the scene.. » <br />
+  « .. You can ban me from your discord, pussy , But — .. » <br />
   <img src="https://file.garden/Zlo7whFY2AfQROME/701745-E8-90-FB-4-E3-D-B7-A8-5-E17-D1414-ACE.png"with="50" height="50">
   <br /> 
   Male , 19yrs old <br />
@@ -20,6 +20,6 @@
   If you are K0d@c0n or any type or l0li / sh0t@con DNI. Being attracted to minor looking characters is weird af! <br />
   ——— <br />
   <img src="https://file.garden/Zlo7whFY2AfQROME/59bf563c.gif" "width="60" height="60"> <br />
-  « .. Fucking chase me, fucking break me — You're my everything, please just r-📸 me.. » <br /> <br />
+  « .. — I'll always have a bigger cock than you .. » <br /> <br />
   <img src="https://file.garden/Zlo7whFY2AfQROME/Untitled110_20240620030008.png" "width="190" height="190"> <br />
 </div>
