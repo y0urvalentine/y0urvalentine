@@ -7,12 +7,17 @@
   TAKEN !! 01•02•23 <br /> 
   <img src="https://file.garden/Zlo7whFY2AfQROME/bab69adf.gif" "width="80" height="80"> <br />
   ——— <br /> 
-  I enjoy dead dove media/games , I do NOT condone any actions in them irl !! <br />
+  !! BYI !! <br />
+  I enjoy dead dove media/games. <br />
+  I am also PROFIC ! This means I believe dark themes are OKAY in media but NOT in real life. :3 <br />
+  - 🕊️⚰️ + 🥭🌈 - <br />
   Enjoying dark fiction doesn't make you evil. <br />
-  Please think logically. <br />
- — ⚰️🕊️ — <br />
-  Proshippers DNI if you're weird ! (So most all of you) <br />
-  If you're not a freak you can INT, if you're curious about what I mean just whisper me X3 ! <br />
+  Please think logically!! <br />
+  ~ <br />
+ <img src="https://file.garden/Zlo7whFY2AfQROME/aa584a79.gif" "width="40" height="40"> <br />
+  ~ <br />
+  !! DNI !! <br />
+  If you are K0d@c0n or any type or l0li / sh0t@con DNI. Being attracted to minor looking characters is weird af! <br />
   ——— <br />
   <img src="https://file.garden/Zlo7whFY2AfQROME/6eabb36f.png" "width="30" height="30"> <br />
   « .. Fucking chase me, fucking break me — You're my everything, please just r-📸 me.. » <br /> <br />
