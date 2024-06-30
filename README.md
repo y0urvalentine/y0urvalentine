@@ -17,7 +17,7 @@
  <img src="https://file.garden/Zlo7whFY2AfQROME/aa584a79.gif" "width="40" height="40"> <br />
   ~ <br />
   !! DNI !! <br />
-  If you are K0d@c0n or any type or l0li / sh0t@con DNI. Being attracted to minor looking characters is weird af! <br />
+  If you are K0d@c0n or any type or l0li / sh0t@con. Being attracted to minor looking characters is weird af! <br />
   ——— <br />
   <img src="https://file.garden/Zlo7whFY2AfQROME/59bf563c.gif" "width="60" height="60"> <br />
   « .. — I'll always have a bigger cock than you .. » <br /> <br />
