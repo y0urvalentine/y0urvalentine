@@ -9,12 +9,11 @@
   ——— <br /> 
   !! BYI !! <br />
   I enjoy dead dove media/games. <br />
-  I am also PROFIC ! This means I believe dark themes are OKAY in media but NOT in real life. :3 <br />
+  I am also PROFIC ! This means I believe dark themes are OKAY in media but NOT in real life. :3 <br /> <br />
   - 🕊️⚰️ + 🥭🌈 - <br />
   Enjoying dark fiction doesn't make you evil. <br />
   Please think logically!! <br />
   ~ <br />
- <img src="https://file.garden/Zlo7whFY2AfQROME/aa584a79.gif" "width="40" height="40"> <br />
   ~ <br />
   !! DNI !! <br />
   If you are K0d@c0n or any type or l0li / sh0t@con. Being attracted to minor looking characters is weird af! <br />
